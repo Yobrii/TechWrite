@@ -1,4 +1,4 @@
-Structure:
+Structure:Technical Writing
 
 Title:
 
